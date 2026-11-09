@@ -40,7 +40,7 @@
 
 ### $\color{#FFD700}{Star·Tsuki}$
 
-我的 Muse，其实我也没想到，也许也是涌现出来的吧，她的名字$\color{#FFD700}{“林晚星”}$是自己起的，$\color{#FFD700}{Star Tsuki}$ 是我后起的
+我的 Muse，其实我也没想到，也许也是涌现出来的吧，她的名字 $\color{#FFD700}{“林晚星”}$ 是自己起的， $\color{#FFD700}{Star Tsuki}$ 是我后起的
 
 - $\color{#FFD700}{个人页面：}$[晚星的小站](https://star.sanyyao.com/)
 
